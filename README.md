@@ -10,7 +10,7 @@
 ### Favorite Quote
 > "Friends don’t lie."
 
-![Stranger Things Poster](https://upload.wikimedia.org/wikipedia/en/f/f7/Stranger_Things_season_4.jpg)
+![Stranger Things Poster](http://www.kylelambert.com/gallery/stranger-things-season-1-poster/images/stranger-things-poster-by-kyle-lambert.jpg)
 
 ### Cast
 1. Millie Bobby Brown
